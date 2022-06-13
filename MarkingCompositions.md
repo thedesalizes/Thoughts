@@ -17,3 +17,10 @@ There's so much about writing flow, good writing habits, and writing mistakes to
 I'm not writing this to make this tuition centre look bad, nor am I trying to say that I'd be a good teacher or anything, but the constraints I've been given have made marking these scripts extremely difficult for me mentally, since I'm even given a **format** to follow when giving comments and corrections. And heck while I'm not under any contract or anything, I'm kinda afraid of deviating from this format just to address these concerns I feel so strongly about. I really *really* don't mean to be a suckup or anything, but if this affects how "quality" my marking is to the tuition centre and might catch me flak, I want to mess with none of it.
 
 ## Close, 0611hrs, 14/06/2022
+
+## Open, 0621hrs 14/06/2022  
+Edit: Yes, I am allowed to mark for grammar and spelling. Thank god I can do that at least.  
+But coherence and writing flow isn't something they've explicitly told us to mark :pensive:
+
+*reassuring myself* As long as I follow whatever is printed, I should be fine... right... right.???
+## Close, 0625hrs, 14/06/2022
