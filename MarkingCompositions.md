@@ -23,4 +23,7 @@ Edit: Yes, I am allowed to mark for grammar and spelling. Thank god I can do tha
 But coherence and writing flow isn't something they've explicitly told us to mark :pensive:
 
 *reassuring myself* As long as I follow whatever is printed, I should be fine... right... right.???
-## Close, 0625hrs, 14/06/2022
+## Close, 0625hrs, 14/06/2022  
+
+## Open, 0707hrs 14/06/2022  
+Right now, everything is making me feel more and more worried. Blue-ticked by the teacher when I asked for more information on the students current education level? They must be thinking I'm asking redundant things.
